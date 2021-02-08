@@ -20,9 +20,9 @@ Below is a list of Projects i have been a part of.
 - Coding
 - Listening to music sometimes but then some more coding 
 - Playing the guitar and coding
-- Playing games
-- Watching Anime
-- Reading comics and manga
+- Playing games and coding
+- Watching Anime and coding
+- Reading comics and manga ...and coding
 
 
 
